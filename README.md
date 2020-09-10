@@ -1,0 +1,1 @@
+# newsweek-adams1
